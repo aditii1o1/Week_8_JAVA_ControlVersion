@@ -1,3 +1,1 @@
-hi my name is aditiiiiiiii. I am 19 years old. My home is in Hetauda. Hetauda is beautiful.
-
-I love hetauda. I love Masala Beads. I love Hello Kitty.
+Travelling is an experience that can teach us so many things that you cannot possibly learn while living at home. Firstly, it teaches you how to make new friends. The world is full of people who love interacting. You get to make friends when you travel to new places and spend quality time with them.
